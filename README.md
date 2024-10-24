@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Nat
+- 👀 I’m interested in music and drawing
+- 🌱 I’m currently learning middle school stuff
+- 📫 How to reach me is through idk
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: My friends all think im crazy and im currently taken
+- Name of boyfriend: Pedro David Granado
